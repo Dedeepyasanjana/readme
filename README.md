@@ -7,7 +7,7 @@ Roll no -220123021
 Optimistic
 Self motivated
 Passionate hardworking person
-and too good looking
+and too good looking 🙂‍↔️
 ### wHAT DO I DO FOR FUN
 listening to music
 travelling
